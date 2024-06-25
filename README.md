@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Caio (Kyle)
 - 👀 I’m interested in making emojies in the google blob aesthetic
 - 🌱 I’m currently learning its aesthetic + new emojies so i can design the emojies
-- 💞️ I’m looking to collaborate on Google (if they accept)
+- 💞️ I’m looking to collaborate on Google to make this a official new android emoji set (if they accept)
 - 📫 How to reach me? idk
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i have austism
